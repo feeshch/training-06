@@ -1,2 +1,2 @@
 # training-06
-Bonjour de smar2
+Bonjour de smar23
